@@ -35,7 +35,7 @@ Vielmehr sehen wir jede_n Einzelne_n in der Pflicht, sich an der Gestaltung der 
 **Mit folgenden Punkten erwarten wir eure Identifikation, wenn ihr an der Kleinen Karibik teilnehmen wollt:**
 
 * Wir erwarten eine antifaschistische und antisexistische Grundeinstellung. Bleibt der Veranstaltung fern und lasst eure Bekannten zu Hause, wenn ihr das nicht gewährleisten könnt.
-* Beschäftigt euch mit dem Thema patriarchale Gewalt: Sprecht mit euren männlichen Freunden darüber und reflektiert euer eigenes und deren Verhalten in der Vergangenheit.
+* Beschäftigt euch mit dem Thema patriarchale Gewalt: Sprecht mit euren cis-männlichen Freunden darüber und reflektiert euer eigenes und deren Verhalten in der Vergangenheit.
 * Informiert euch über und handelt nach dem Konsensprinzip: jegliche Handlungen finden nur im gegenseitigen Einverständnis statt. **NEIN heißt NEIN**, und nur ein klares **JA heißt JA**!
 Respektiere die Grenzen von anderen: Nur weil ihr etwas für richtig oder angebracht haltet, muss das bei anderen nicht genauso sein. Fragt lieber einmal mehr nach.
 * Übernehmt Verantwortung: Passt auf einander auf. Wenn ihr grenzüberschreitendes Verhalten erlebt oder bei anderen seht, seid solidarisch mit dem_r Betroffenen, schreitet ein oder holt weitere Personen zur Hilfe.
@@ -53,6 +53,12 @@ Wenn ihr Fragen oder Anregungen habt, meldet euch dazu gerne unter [kleinekaribi
 
 *Das Konsenzprinzip*
 
+* [Sexueller Konsens: Ja, Nein, Vielleicht](https://www.spektrum.de/news/sexueller-konsens-ja-nein-vielleicht/2028184)
+* [From Ignorance to Knowledge: Sexual Consent and Queer Stories](https://www.researchgate.net/publication/357106043_From_ignorance_to_knowledge_Sexual_consent_and_queer_stories) (Artikel dort auf Anfrage verfügbar)
+
+Weiterführende Literatur: 
+
+* [Yes Means Yes! Visions of Female Sexual Power and a World without Rape](https://www.hachettebookgroup.com/titles/jaclyn-friedman/yes-means-yes/9781580058995/?lens=seal-press) (Auszüge auf Anfrage verfügbar)
 
 
 *Awarenesskonzepte*
