@@ -1,6 +1,6 @@
 ---
 layout: page
-title: About
+title: 
 ---
 
 Die Kleine Karibik ist ein wundervoller Ort in Brandenburg.
