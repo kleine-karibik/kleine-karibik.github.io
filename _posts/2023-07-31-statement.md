@@ -1,19 +1,21 @@
 ---
 layout: post
-title: Statement zur Kleinen Karibik 2022
+title: Feiern in der Kleinen Karibik
 ---
 
 Hallo Freund_innen der Kleinen Karibik,
-wir möchten euch mit dieser Plattform zum Einen über Geschehnisse auf der Kleinen Karibik 2022 sowie deren Aufarbeitung, unsere Perspektive darauf und die daraus folgenden Konsequenzen informieren. Zum Anderen wollen wir für das Thema Awareness und den von uns gewünschten Umgang untereinander im Rahmen unserer Veranstaltung sensibilisieren.
+
+die Karibik steht vor der Tür und dieses Jahr gehen wir schon in die sechste Runde. In den letzten Jahren sind wir immer weiter gewachsen und haben gemeinsam viele Erfahrungen sammeln können. Es gab viele schöne Momente, aber leider auch Ereignisse von denen man sich wünscht, dass sie in den eigenen Strukturen nicht stattfinden. Wir haben versucht und versuchen kontinuierlich unser Selbstverständnis dessen, was wir uns in diesen Tagen aufbauen kontinuierlich zu hinterfragen und aus den Dingen, die passiert sind zu lernen. 
+Wir möchten deshalb nochmal auf diesen Text verweisen, der in seinem Kern immer noch aktuell ist. 
+
 
 ### Was ist passiert?
 
-Im vergangen Jahr kam es auf der Kleinen Karibik zu einem Fall von sexualisierter Gewalt in Form von nicht einvernehmlichen sexuellen Handlungen. Wir als OrgaCrew wurden im Nachgang der Veranstaltung vom Unterstützer_innenumfeld der betroffenen Person darüber informiert und haben daraufhin als OrgaCrew und Freund_innenkreis einen Aufarbeitungsprozess gestartet und führen diesen auch zum jetzigen Zeitpunkt weiter.
+Auf der Kleinen Karibik 2022 kam es zu einem Fall von sexualisierter Gewalt in Form von nicht einvernehmlichen sexuellen Handlungen. Wir als OrgaCrew wurden im Nachgang der Veranstaltung vom Unterstützer_innenumfeld der betroffenen Person darüber informiert und haben daraufhin als OrgaCrew und Freund_innenkreis einen Aufarbeitungsprozess gestartet und führen diesen auch zum jetzigen Zeitpunkt weiter.
 
 ### Was ist unsere Haltung & Perspektive?
 
-Nachdem wir als OrgaCrew über den Vorfall im letzen Jahr informiert wurden, haben wir über eine Unterstützer_innengruppe Kontakt zu der betroffenen Person aufgenommen, um einen Umgang mit dem Geschehenen zu finden und eine Positionierung von uns als OrgaCrew zu erarbeiten.
-Im Vordergrund stand für uns dabei die Solidarität mit der betroffenen Person, d.h. wir haben ihr die Definitionsmacht über den Übergriff gegeben und sind auf die von ihr an uns herangetragenen Wünsche bezüglich des Umgang damit eingegangen. Wir möchten euch hiermit über den Vorfall informieren. Des Weiteren wurde ein transformativer Prozess im Freundeskreis der gewaltausübenden Person gestartet, welcher weiterhin läuft.
+Nachdem wir als OrgaCrew über den Vorfall informiert wurden, haben wir über eine Unterstützer_innengruppe Kontakt zu der betroffenen Person aufgenommen, um einen Umgang mit dem Geschehenen zu finden und eine Positionierung von uns als OrgaCrew zu erarbeiten. Im Vordergrund stand für uns dabei die Solidarität mit der betroffenen Person, d.h. wir haben ihr die Definitionsmacht über den Übergriff gegeben und sind auf die von ihr an uns herangetragenen Wünsche bezüglich des Umgang damit eingegangen. Wir möchten euch hiermit über den Vorfall informieren. Des Weiteren wurde ein transformativer Prozess im Freundeskreis der gewaltausübenden Person gestartet.
 
 Im Folgenden möchten wir hier unsere grundsätzliche Position zum Thema sexualisierte und patriarchale Gewalt mit euch teilen:
 
